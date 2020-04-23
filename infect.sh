@@ -1,4 +1,4 @@
-# A tool by nitro from www.noob-hackers.com
+8# A tool by nitro from www.vinaysingh938.com
 # Be a unique person not copy cat
 # Colours
 #-----------------
